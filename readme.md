@@ -1,0 +1,3 @@
+What the recipie is
+
+The food recipe that I would be making is the pancake recipe. Pancakes are the perfect breakfast option. Be it any time of the year; pancakes will make your day. Loved by children and adults, pancakes will save your day, if you are in a hurry, or just craving some filling and delicious breakfast or planning a romantic breakfast-in-bed. All you need is this simple pancake recipe, and with just a little effort, you can create a batch of super airy and fluffy pancakes that will be loved by all. Everyone will wonder about how to make pancakes after a delicious bite of this fluffy treat. You can also add some chocolate chips or drizzle maple syrup to embellish them further.
